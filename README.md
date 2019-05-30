@@ -1,0 +1,1 @@
+Privacy information for Solestage
